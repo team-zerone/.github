@@ -1,5 +1,5 @@
-## Welcome to the team 🙌
-
+## Welcome to the Zerone 🙌
+ 
 <!--
 
 **Here are some ideas to get you started:**
